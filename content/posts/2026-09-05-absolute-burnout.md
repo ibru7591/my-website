@@ -7,7 +7,7 @@ regaining weight. back to start.
 
 not to take 1000 cal but 1650.
 
-might  lose hair, testosterones, regain weight muscles etc.
+might  lose hair, testosterones, regain weight ,lose muscles etc.
 
  super complex man.
 
