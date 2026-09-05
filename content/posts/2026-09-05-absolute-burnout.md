@@ -26,10 +26,10 @@ right now? after 3 weeks 78.8 right now, 8kg to be lost in 7 weeks\
 \
 **the wholsome desire:**
 
-> * ***\- keep weight stable***
+> * ***\-KEEP THE BODY WEIGHT STABLE WITHIN 72 KILOGRAMS***
 
-* \- no muscle/hair/testo etc loss
-* \- able to eat well
+* **\- no muscle/hair/testo etc loss**
+* **\- able to eat well**
 
 LETS SEE\
 BISMILLAH.
