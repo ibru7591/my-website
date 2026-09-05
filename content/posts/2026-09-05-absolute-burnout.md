@@ -18,6 +18,10 @@ bmi wuld be 24, fair. 27.7 rn
 superbly burned out.\
 ya allah.
 
+are we trapped?
+
+2.2 mo gym left.
+
 right now? after 3 weeks 78.8 right now, 8kg to be lost in 7 weeks\
 \
 **the wholsome desire:**
